@@ -1,4 +1,4 @@
-
+updated IPVanish Addon | P2P-support + DNS-leak-protection is the best IPVanish addon, featuring P2P-support and DNS-leak-protection. Secure, fast, and optimized for privacy.
 
 
 
